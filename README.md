@@ -120,7 +120,7 @@ If you want to push yourself and learn something new, optionally consider doing 
 ###### When is it due?
 
 
-**Friday the 13th!** - final presentations** 
+**Friday the 13th!** - final presentations (spooky...)
 ---
 
 ## Submission
